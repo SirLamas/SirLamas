@@ -1,3 +1,5 @@
+
+- 🖥️ Technical Fellow
 - 👋 Hi, I’m @SirLamas
 - 👀 I’m interested in ... your mom
 - 🌱 I’m currently learning ... who your mom is 

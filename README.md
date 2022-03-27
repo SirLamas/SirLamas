@@ -2,7 +2,7 @@
 - 🖥️ Technical Fellow
 - 👋 Hi, I’m @SirLamas
 - 👀 I’m interested in ... your mom
-- 🌱 I’m currently learning ... who your mom is 
+- 🍑 I’m currently learning ... who your mom is 🍆
 - 💞️ I’m looking to collaborate on ... your mom
 - 📫 How to reach me ... call your mom
 
